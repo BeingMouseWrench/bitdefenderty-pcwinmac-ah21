@@ -1,4 +1,4 @@
-# 
+# Automatic Bitdefender Total Security extensions for Mac OS | Top Bitdefender Total Security extensions for PC Windows. Featuring wireguard protocol and cross-platform sync — optimized for maximum performance on every platform.
 
 
 
